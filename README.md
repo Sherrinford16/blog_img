@@ -1,1 +1,1 @@
-# blog_img
+# Welcome to my blog page: lovecanele.com
